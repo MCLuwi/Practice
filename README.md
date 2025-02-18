@@ -1,1 +1,2 @@
-Sana pumasa paper bukas
+Sana pumasa paper bukas.
+Sana maawa si Gilbert.
